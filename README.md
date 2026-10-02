@@ -1,7 +1,7 @@
 <img width="547" height="365" alt="images" src="https://github.com/user-attachments/assets/cc5bed31-2ae5-43d9-8aa6-ae016cb65c67" />
 
 
-## step one of the leaf aura farm🙈🙉🙊
+## STEP ONE OF THE LEAF AURA FARM🙈🙉🙊
 
 <!--
 **AlKhandzhyan26/AlKhandzhyan26** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
