@@ -1,3 +1,4 @@
+<img width="547" height="365" alt="images" src="https://github.com/user-attachments/assets/fba9bd64-1804-407e-9ca7-390f5b893746" />
 <img width="204" height="192" alt="download" src="https://github.com/user-attachments/assets/7a0ec6e7-3a7b-48a5-911b-3f917c6af978" />
 
 ## HELLO I AM THE FATHER👋
