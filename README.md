@@ -1,7 +1,7 @@
 <img width="547" height="365" alt="images" src="https://github.com/user-attachments/assets/cc5bed31-2ae5-43d9-8aa6-ae016cb65c67" />
 
 
-## HELLO I AM THE FATHER👋
+## step one of the leaf aura farm🙈🙉🙊
 
 <!--
 **AlKhandzhyan26/AlKhandzhyan26** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
