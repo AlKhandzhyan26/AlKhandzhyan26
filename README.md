@@ -1,5 +1,5 @@
+<img width="547" height="365" alt="images" src="https://github.com/user-attachments/assets/cc5bed31-2ae5-43d9-8aa6-ae016cb65c67" />
 
-<img width="204" height="192" alt="download" src="https://github.com/user-attachments/assets/7a0ec6e7-3a7b-48a5-911b-3f917c6af978" />
 
 ## HELLO I AM THE FATHER👋
 
